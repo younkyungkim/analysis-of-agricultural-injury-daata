@@ -8,6 +8,7 @@
 ![image](https://github.com/younkyungkim/analysis-of-agricultural-injury-daata/assets/141793731/8f5ccd51-5e7a-43d5-b8b8-92628ca5c8d6)
 
 ![image](https://github.com/younkyungkim/analysis-of-agricultural-injury-daata/assets/141793731/a21722d0-c727-412b-b890-fc43a1877329)
+![image](https://github.com/younkyungkim/analysis-of-agricultural-injury-daata/assets/141793731/b8f04931-8eb0-4efe-9f2b-06717334f833)
 
 ![image](https://github.com/younkyungkim/analysis-of-agricultural-injury-daata/assets/141793731/60ede5e7-d74a-469e-88fa-19aa5fdb2b19)
 ![image](https://github.com/younkyungkim/analysis-of-agricultural-injury-daata/assets/141793731/e35bfa91-1dab-499a-adda-2e600d6510ac)
